@@ -1,3 +1,1 @@
- Uploading "bandicam 2025-05-20 22-29-44-857.mp4"...
-fghgfhgf
-[https://drive.google.com/drive/my-drive](url)
+https://drive.google.com/drive/folders/1MO6_uKJPiU5ouODPcOGgWC7r6mSBNoOb?usp=drive_link
